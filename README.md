@@ -1,1 +1,1 @@
-[![MercadoLivre](http://4.bp.blogspot.com/-HZDKpbt-PgY/UJsdzendIbI/AAAAAAAAAbs/rb5AE19s1Eo/s1600/diretor+Mundo+Skin+lol+league+of+legends.jpg)]
+![MercadoLivre](http://4.bp.blogspot.com/-HZDKpbt-PgY/UJsdzendIbI/AAAAAAAAAbs/rb5AE19s1Eo/s1600/diretor+Mundo+Skin+lol+league+of+legends.jpg)
